@@ -13,4 +13,5 @@ My favorite series is The Queens Gambit. It is all about Chess.
 - Mr. Shaibel
 
 
-![Uploading The-Queens-Gambit-Review-Netflix-tv-series.jpg…]()
+<img width="1280" height="720" alt="The-Queens-Gambit-Review-Netflix-tv-series" src="https://github.com/user-attachments/assets/3a8a1aae-571d-40c1-b90e-353ece7ddc87" />
+
