@@ -11,4 +11,6 @@ My favorite series is The Queens Gambit. It is all about Chess.
 - Beth Harmon
 - Alice Harmon
 - Mr. Shaibel
+
+
 ![Uploading The-Queens-Gambit-Review-Netflix-tv-series.jpg…]()
